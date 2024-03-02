@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there!
 The one in the photo is not me, it is Fate the magnificent one. 
 The best villain of all time played by actor Jack Lemon in the movie "The great race".
 <!--
