@@ -2,7 +2,7 @@
 The one in the photo is not me, it is Fate the magnificent one. 
 The best villain of all time played by actor Jack Lemon in the 1965 film "The great race".
 
-![image](https://github.com/asieringka/asieringka/assets/108326558/76a3f3d2-5dc5-4454-aa9b-efe5c1ad91ad)
+![image](https://github.com/asieringka/asieringka/assets/108326558/6f1874bf-864e-460c-a918-c213f1304fa0)
 
 
 <!--
